@@ -1,2 +1,2 @@
 # Videos
-A collection of videos
+A collection of meme videos
